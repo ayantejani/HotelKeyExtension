@@ -77,4 +77,4 @@ Contact
 
 If you have questions about this privacy policy or the extension’s data handling practices, please contact:
 
-Email: your-email@example.com
+Email: ayan.tejani@hiexmarkham.ca
